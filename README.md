@@ -67,3 +67,4 @@ I'm particularly interested in remote and international opportunities where I ca
 📫 Let's Connect
 
 If you're working on interesting projects involving data, cloud, automation or infrastructure, feel free to connect.
+My Email silviomartinez1@outlook.com
